@@ -1,1 +1,1 @@
-The cake is a lie
+Malej Nas čeká miminko.
